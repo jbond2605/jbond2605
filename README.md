@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jbond2605
 - 👀 I’m interested in engineering
-- 🌱 I’m currently learning ruby/JS
+- 🌱 I’m currently learning your mom
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me /
 
